@@ -8,3 +8,5 @@ Wed: 5-7pm
 
 - Manpreet Katari
 - 
+
+_office hours Friday
